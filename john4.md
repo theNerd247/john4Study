@@ -33,4 +33,5 @@ Men of City
 
 # External links
 
+[NET Translation](https://netbible.org/bible/John+4)
 [](https://bible.org/seriespage/10-woman-well-john-41-42)
