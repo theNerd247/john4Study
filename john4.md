@@ -7,10 +7,7 @@ Jesus
 Disciples
 Husbands
 Men of City
-
-## Races Involved
-
-* Jews vs Samaritans
+Jews and Samaritans
 
 # What 
 
@@ -26,6 +23,8 @@ Men of City
 # When 
 
 # Where
+
+Jerusalem or Mount Gerizim
 
 # Why
 
