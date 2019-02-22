@@ -30,3 +30,7 @@ Men of City
 # Why
 
 # How
+
+# External links
+
+[](https://bible.org/seriespage/10-woman-well-john-41-42)
