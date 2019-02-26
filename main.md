@@ -50,13 +50,6 @@ down for you?
 
 God did! 
 
-You may be asking yourself: "But Noah, aren't we supposed to start with sin?"
-
-Starting with sin assumes that they know about God already.
-
-In today's world many people haven't given God a second thought. So we must
-start before sin started.
-
 "God loves you" goes straight to the heart of man - each of us desire deep down
 to be loved!
 
