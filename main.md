@@ -4,18 +4,37 @@
 
 Matthew 28:19
 
-* Learning about who Jesus was in the OT, NT
-* Learning what Jesus did
+A couple years ago I was flying to Texas to visit my family who had just moved
+out there. I had recently been through some great disciplship by 5 guys
+here at BCM. 
 
-Now we get to learning how to share Jesus with others.
+I had a refresshing relationship with Jesus and I was excited about all I was
+learning!
 
-* There is no 
+I had always heard that airplanes were a great place for witnessing to others.
+
+So I thought, alright! I'll try it out. But, I couldn't. My mouth would go dry,
+I knew I knew the Gospel but how do I share it?
+
+Tonight we're going to look at 4 simple steps to sharing the Gospel with
+others which was created for college students.
+
+It's called the 4 spiritual laws and was made by Bill Bright the founder for
+campus crusades.
+
+These are 4 simple steps that are intended to guide your conversations with
+others. By no means is it the law; there are many other ways to share the
+gospel with other people
+
+Turn to John 4 - let's see how the master teacher brought soemone to a
+relationship with Him.
 
 # Law 1 
 
 v10 - "livng water"
 
 __God loves you and has a wonderful plan for your life.__
+(_repeat_)
 
 ## Love
 
@@ -28,15 +47,23 @@ _HOT DOG!_ This is amazing isn't it?!
 When was the last time you knew deep down that someone would lay their life
 down for you?
 
-It's hard to grasp in your heart what this love really means until you get to
-know the person who loves you.
+God did! 
 
-* Before you can share the Gospel with someone you must first know who you're
-talking about?
+You may be asking yourself: "But Noah, aren't we supposed to start with sin?"
 
-I wonder do you know Him?  Have you tasted of His "living water?"
+Starting with sin assumes that they know about God already.
+
+In today's world many people haven't given God a second thought. So we must
+start before sin started.
+
+"God loves you" goes straight to the heart of man - each of us desire deep down
+to be loved!
+
+It helps to share the Gospel 
 
 ## Plan
+
+God not only loves you, but he has a wonderful plan for your life!
 
 When God created you He didn't just make you and then left your life to 
 be carried out on your own.
@@ -183,8 +210,18 @@ Remember the "gift" from v10?
 
 _Ephesians 2:8-9_
 
+God's gift is given to each of us and must be recieved by grace!
 
 # Application
 
+1. Remember that it is the Holy Spirit that does the work - your job is to pass
+   on the information. It is the Holy Spirit's job to change their heart.  _1
+   Corinthians 3:6_
+1. Cultivate a loving relationship with Christ. The more I grow in Him the more
+   I can't help but share it with others. 
+1. But be careful! The lies of Satan will make you feel as though you are a
+   worthless Christian if you don't witness to others constantly. No where in
+   scripture is your salvation put into question because of your lack of
+   witnessing. 
 
 ![Man's Life Is Undirected](./img/directedLife.jpg)
