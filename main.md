@@ -11,7 +11,8 @@ here at BCM.
 I had a refresshing relationship with Jesus and I was excited about all I was
 learning!
 
-I had always heard that airplanes were a great place for witnessing to others.
+I had always heard that airplanes were a great place for witnessing to others
+because of their captive audience
 
 So I thought, alright! I'll try it out. But, I couldn't. My mouth would go dry,
 I knew I knew the Gospel but how do I share it?
@@ -164,17 +165,18 @@ __Jesus is God's only provision for man's sin__
 
 1. He died
 
-_Romans 5:8_ 
-
+_Romans 5:8_
 
 2. He rose from the grave
 
 _1 Corinthians 15:3-6_
 
-Today there is a common misonception that as long as we're a "good person"
-we'll get to heaven!
+This is a historical fact. Check out some of Josh McDowell's resources online.
 
 3. He is the ONLY Way
+
+Today there is a common misonception that as long as we're a "good person"
+we'll get to heaven!
 
 _John 14:6_
 _Romans 10:9_
@@ -194,7 +196,7 @@ Head knowledge only goes so far.
 
 The fourth spiritual law is:
 
-__We must individually recieve Jesus Christ as Savior and Lord__
+__We must individually recieve Jesus Christ as Savior__ 
 
 
 v28a
@@ -214,6 +216,15 @@ God's gift is given to each of us and must be recieved by grace!
 
 # Application
 
+## Review
+
+1. God Loves you and has a wonderful plan for your life
+1. Man is sinful and therefore seperated from God
+1. Jesus is God's only provision for man's sin
+1. We must individually recieve Jesus as Savior to be saved. 
+
+## Things to Remember
+
 1. Remember that it is the Holy Spirit that does the work - your job is to pass
    on the information. It is the Holy Spirit's job to change their heart.  _1
    Corinthians 3:6_
@@ -223,5 +234,3 @@ God's gift is given to each of us and must be recieved by grace!
    worthless Christian if you don't witness to others constantly. No where in
    scripture is your salvation put into question because of your lack of
    witnessing. 
-
-![Man's Life Is Undirected](./img/directedLife.jpg)
