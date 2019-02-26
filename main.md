@@ -91,6 +91,8 @@ This brings us to our 2nd Law
 
 __Man is sinful and is seperated from God.__
 
+![Man Is Separated From God](./img/seperatedMan.jpg)
+
 v11 
 
 Here's a picture of a deep well.
@@ -113,7 +115,6 @@ Without God we can do nothing! We are spiritually dead.
 
 _Romans 5:12_
 
-![Man Is Separated From God](./img/seperatedMan.jpg)
 
 When we are born we are born with a nature completely seperated from God. This
 is what "death" means: Seperated.
@@ -155,6 +156,8 @@ v19 - v26
 So how do we restore the relationship with God? We don't - God already did.
 
 __Jesus is God's only provision for man's sin__
+
+![Christ Bridges The Gap](./img/christBridge.jpg)
 
 1. He died
 
